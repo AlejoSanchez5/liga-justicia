@@ -1,7 +1,0 @@
-# Historia de flash
-
-sjkjkdfajkfjdjfkjkfjkjakjkñfjkadkdakñfjdaskjdfa
-kadjfldkfjdfkljkljfkdjkfjdkasdjkdfjkdjkdjdas
-kdajkdjdkjdkjkdjfkadjfkafjdakjksjkdfjkdjkfdjadfkljfd
-dkdjdfkljdkjdfkdjkdjkdjdkjdkdjafkdsfjkadfjkdjkdjgfeuieu
-uriuoiroiruqtioueiqeruioqreuioqeruqreiop
